@@ -9,3 +9,4 @@ But even better in nice blue tropical waters
 Swimming with tha sharks, and rays, and all the reef fish, turtles, tuna, barracuda, seahorse, frogfish, and many, many more...
 It is so jawdroppingly amazing.. you can't imagine
 It is AWESOME!
+If I did not have to work I would scuba all day every day. Travel the world and teh 7 seas..
