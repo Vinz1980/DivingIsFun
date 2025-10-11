@@ -11,4 +11,5 @@ It is so jawdroppingly amazing.. you can't imagine
 It is AWESOME!
 If I did not have to work I would scuba all day every day. Travel the world and the 7 seas..
 Try a introduction dive I can recommend anyone. Do a DSD Discover Scuba Diving experience.. get in the water and experience it..
-If you like it.. and chances are that you will.. get certified! Go get yourself an Open Water certification and start your diving route
+If you like it.. and chances are that you will.. get certified! Go get yourself an Open Water certification and start your diving wander
+If you like it.. get more certifications, build your skill level and grow!
