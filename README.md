@@ -14,3 +14,4 @@ Try a introduction dive I can recommend anyone. Do a DSD Discover Scuba Diving e
 If you like it.. and chances are that you will.. get certified! Go get yourself an Open Water certification and start your diving wander
 If you like it.. get more certifications, build your skill level and grow!
 Get your logbook and fill it with many logged dives in beautiful places around the globe..
+These are in some cases life changing dives with amazing wildlfie interactions.
