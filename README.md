@@ -15,3 +15,4 @@ If you like it.. and chances are that you will.. get certified! Go get yourself 
 If you like it.. get more certifications, build your skill level and grow!
 Get your logbook and fill it with many logged dives in beautiful places around the globe..
 These are in some cases life changing dives with amazing wildlfie interactions.
+Memories you will cherish for the rest of your life.
