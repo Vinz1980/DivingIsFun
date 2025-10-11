@@ -7,3 +7,4 @@ It is just such a beautiful place to be... underwater ... breathing .. weigthles
 Even in fresh water lakes with hardly any life, it is still refreshing and relaxing
 But even better in nice blue tropical waters 
 Swimming with tha sharks, and rays, and all the reef fish, turtles, tuna, barracuda, seahorse, frogfish, and many, many more...
+It is so jawdroppingly amazing.. you can't imagine
