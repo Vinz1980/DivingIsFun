@@ -4,3 +4,4 @@
 I can't imagine life without scubadiving. I don't know how I used to do with out it.
 How do people not scuba dive?
 It is just such a beautiful place to be... underwater ... breathing .. weigthless
+Even in fresh water lakes with hardly any life, it is still refreshing and relaxing
