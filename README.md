@@ -23,3 +23,4 @@ Now you are not only enjoying life, but also changing other peoples lives, as th
 This is the start of a beautiful journey of personal development and making a difference!
 There is just sooo much to explore, the bottom is the limit (pun intended)
 This is like a parallel universe within the planet.
+Come explore this majestical place with me!
