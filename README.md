@@ -19,3 +19,4 @@ Memories you will cherish for the rest of your life.
 And.. if you are passionate enough.. you can become a scuba diving professional
 First you will become a Divemaster or Assistant instructor, and then you can become a Open Water SCUBA Instructor.
 Past that stage you can increase your instructor levels and teach more and more different courses on different levels.
+Now you are not only enjoying life, but also changing other peoples lives, as they get to experience the magical aquatic world.
