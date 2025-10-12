@@ -21,3 +21,4 @@ First you will become a Divemaster or Assistant instructor, and then you can bec
 Past that stage you can increase your instructor levels and teach more and more different courses on different levels.
 Now you are not only enjoying life, but also changing other peoples lives, as they get to experience the magical aquatic world.
 This is the start of a beautiful journey of personal development and making a difference!
+There is just sooo much to explore, the bottom is the limit (pun intended)
