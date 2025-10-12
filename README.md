@@ -22,3 +22,4 @@ Past that stage you can increase your instructor levels and teach more and more 
 Now you are not only enjoying life, but also changing other peoples lives, as they get to experience the magical aquatic world.
 This is the start of a beautiful journey of personal development and making a difference!
 There is just sooo much to explore, the bottom is the limit (pun intended)
+This is like a parallel universe within the planet.
