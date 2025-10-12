@@ -17,3 +17,4 @@ Get your logbook and fill it with many logged dives in beautiful places around t
 These are in some cases life changing dives with amazing wildlfie interactions.
 Memories you will cherish for the rest of your life.
 And.. if you are passionate enough.. you can become a scuba diving professional
+First you will become a Divemaster or Assistant instructor, and then you can become a Open Water Instructor.
