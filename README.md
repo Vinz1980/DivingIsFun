@@ -28,3 +28,4 @@ Are you ready to join me?
 I will guide you.. no problem
 Just let me know what you want to accomplish and what you need.
 I can teach and guide you through every step of the way
+This is my passion
