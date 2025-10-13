@@ -24,3 +24,4 @@ This is the start of a beautiful journey of personal development and making a di
 There is just sooo much to explore, the bottom is the limit (pun intended)
 This is like a parallel universe within the planet.
 Come explore this majestical place with me!
+Are you ready to join me?
