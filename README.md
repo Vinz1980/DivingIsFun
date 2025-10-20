@@ -31,3 +31,4 @@ I can teach and guide you through every step of the way
 This is my passion
 This is what do best and love the most.
 I want to show people the beauty of diving and the aquatic world.
+For those who do not dive.. just do not know what you are missing out on..
