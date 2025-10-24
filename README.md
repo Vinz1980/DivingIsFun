@@ -34,3 +34,5 @@ I want to show people the beauty of diving and the aquatic world.
 For those who do not dive.. just do not know what you are missing out on..
 ## Passion
 There is not a single thing I am more passionate about than scubadiving.
+This is my second nature.
+If only I had gills...
