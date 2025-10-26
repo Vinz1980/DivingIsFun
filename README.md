@@ -1,5 +1,5 @@
 # DivingIsFun
-# Eat Sleap Dive Repeat
+
 ## SCUBA TILL YOU DROP
 I can't imagine life without scubadiving. I don't know how I used to do with out it.
 How do people not scuba dive?
@@ -32,7 +32,7 @@ This is my passion
 This is what do best and love the most.
 I want to show people the beauty of diving and the aquatic world.
 For those who do not dive.. just do not know what you are missing out on..
-## Passion
+## Passion!
 There is not a single thing I am more passionate about than scubadiving.
 This is my second nature.
 If only I had gills...
